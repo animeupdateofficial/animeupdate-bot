@@ -32,4 +32,4 @@ If you have any questions or concerns about this Privacy Policy, you can dm Anim
 
 Effective Date
 
-This Privacy Policy is effective as of [June 23, 2023].
+This Privacy Policy is effective as of June 23, 2023.
